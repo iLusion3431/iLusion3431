@@ -1,3 +1,3 @@
-hi, lol
+hi
 
-![alt text](https://media1.tenor.com/m/yh49cBPeBSQAAAAC/car-garn47.gif)
+![alt text](https://files.catbox.moe/exdj3n.gif) ![alt text](https://files.catbox.moe/bgn1lo.png)
